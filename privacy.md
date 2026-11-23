@@ -88,7 +88,7 @@ title: 골목냥 마당 개인정보처리방침
 ## 9. 개인정보 보호책임자와 연락처
 
 - 개인정보 보호책임자: **Giwoong Han**
-- 이메일: **gksrldnd7897@gmail.com**
+- 이메일: **underlineentertainer@gmail.com**
 
 개인정보 침해에 대한 상담이 필요하시면 아래 기관에도 문의할 수 있습니다.
 
